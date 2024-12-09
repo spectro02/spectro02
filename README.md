@@ -1,12 +1,14 @@
 ## Привет 👋
+[url=https://ibb.co/yQ8r5hn][img]https://i.ibb.co/CHnfvJ5/3d-render-network-communications-design-background-with-shallow-depth-field.jpg[/img][/url]
+
+
+<p align="center"><img src='https://i.ibb.co/sVFZQ5v/3d-render-network-communications-design-background-with-shallow-depth-field.jpg'></p>
 
 
 ---
 #### 📫 КОНТАКТЫ: 
 [![gmail](https://camo.githubusercontent.com/316d8f7c978293bb876edbbf72de1cc0a0d18b70d4ba287d4597ee085eda0b61/68747470733a2f2f696d672e736869656c64732e696f2f62616467652f476d61696c2d7265643f6c6f676f3d676d61696c266c6f676f436f6c6f723d7768697465267374796c653d666f722d7468652d6261646765)](https://mail.google.com/mail/u/0/?fs=1&tf=cm&source=mailto&to=mvassiliev@gmail.com)
 [![telegram](https://camo.githubusercontent.com/8f41682a178e57a174d0c6042e9cdb842c6329b24c34b2bf4206c25e933073a9/68747470733a2f2f696d672e736869656c64732e696f2f62616467652f54656c656772616d2d3243413545303f7374796c653d666f722d7468652d6261646765266c6f676f3d74656c656772616d266c6f676f436f6c6f723d7768697465)](<https://t.me/night_spectro)>)
-
-
 
 ---
 #### ⚒️ ЯЗЫКИ И ИНСТРУМЕНТЫ:
