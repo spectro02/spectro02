@@ -2,7 +2,7 @@
 [url=https://ibb.co/yQ8r5hn][img]https://i.ibb.co/CHnfvJ5/3d-render-network-communications-design-background-with-shallow-depth-field.jpg[/img][/url]
 
 
-<p align="center"><img src='https://i.ibb.co/4Zk07k8/2024-12-09-22-26-19.png'></p>
+<p align="center"><img src='https://i.ibb.co/ZXcCBPX/2024-12-09-22-30-56.png'></p>
 
 
 ---
